@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Justin-One
-- 👀 I’m interested in make friends and studey
+- 👀 I’m interested in make friends and study
 - 🌱 I’m currently learning C/Java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me QQ 594877164
